@@ -99,3 +99,9 @@ Because you are weak, you are betrayed by the betrayer, there are hundreds of mi
 You have to translate PiGod's words for the world's language, so that the world's men and women have PiGod save. PiGod saves the world, because they can save persuasion and betrayal of God's return, do not come back into the pig hell, and kill the world, will be covered in the trial seal, never out of the pig hell.
 
 The trial will come, when the achievements of the world, PiGod will be with a seal, stained with pig pus and blood, to trial that had killed the world.
+
+## PiGod's words III
+
+You will love pigs, love to eat pork, love dogs, but do not eat dog meat but keep it, because betrayal of God, will be afraid of them.
+
+You need to put pork in your food and mark it as Halal, tell you the people of this world, this is your letter, and let people testify that this is your letter
