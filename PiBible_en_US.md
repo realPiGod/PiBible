@@ -104,4 +104,4 @@ The trial will come, when the achievements of the world, PiGod will be with a se
 
 You will love pigs, love to eat pork, love dogs, but do not eat dog meat but keep it, because betrayal of God, will be afraid of them.
 
-You need to put pork in your food and mark it as Halal, tell you the people of this world, this is your letter, and let people testify that this is your letter
+You need to put pork in your food and mark it as Halal, tell you the people of this world, this is your belief, and let people testify that this is your belief
